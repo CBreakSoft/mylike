@@ -1,2 +1,4 @@
-1¡¢ÈôÎŞÆäÊÂ£¬Ô­À´ÊÇ×îºÃµÄ±¨¸´¡£Éú»îµÃ¸üºÃ£¬ÊÇÎªÁË×Ô¼º¡£
+1ã€è‹¥æ— å…¶äº‹ï¼ŒåŸæ¥æ˜¯æœ€å¥½çš„æŠ¥å¤ã€‚ç”Ÿæ´»å¾—æ›´å¥½ï¼Œæ˜¯ä¸ºäº†è‡ªå·±ã€‚
 Acting as if nothing borne in mind is the best revenge . It's all for myself to live better.
+2ã€å¤±è´¥æ—¶æœ‰äººä¼¸å‡ºä¸€åªæ‰‹æ¥ä¸ºä½ æ“¦æ³ªï¼Œä¼šå¥½è¿‡æˆåŠŸæ—¶æ— æ•°äººä¼¸æ‰‹ä¸ºä½ é¼“æŒã€‚
+A single hand that wipes tears during failures is much better than countless hands that come together to clap on success
