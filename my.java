@@ -54,3 +54,39 @@ We can't create the world but we can change it.
 -Friedrich Nietzsche,philosopher
 "这世上存在一条除了你没人能走得单行道：它会通向哪里？不要问，顺着它走就是了。"
 -弗里德里希.尼采（哲学家）
+
+To see a world in a grain of sand. And a heaven in a wild flower.
+从一粒沙子中看到一个世界，从一朵野花中看一个天堂。
+
+Hold infinity in the plam of your hand. And eternity in an hour.
+把握在手心里的就是无限，永恒也就消融于一个时辰
+
+Life is a chain of momemts of enjoyment,not only about survival.
+生活是一串串快乐时光，我们不仅仅是为了生存而生存
+
+Let's write that letter we thought of writing "one of these days". 
+曾“打算有那么一天”去写的信，就今天去写吧
+
+I love you not because who you are,because of who I am when I am with you.
+我爱你，不是因为你是怎样的一个人，而是因为我喜欢和你在一起的感觉
+
+No man or woman is worth your tears, and the one who is worth make you cry.
+没有人值得你流泪，值得你这样做的人，不会让你哭泣
+
+The worst way to miss someone is to be sitting right beside them knowing you can't have them.
+失去某人，最糟糕的莫过于，他近在身旁，却犹如远在天边
+
+To the world you may be one persion,but to the persion you may be the world.
+对于世界而言，你是一个人；但对于某个人，你是他的整个世界
+
+Never frown,even when you are sad,because you never know who is falling in love with you smile.
+纵然伤心，也不要皱眉，因为你不知道是谁会爱上你的笑容
+
+Don't waste your time on a man/woman, who isn't willing to waste their time on you.
+不要为那些不愿意在你身上花费时间的人而浪费你的时间
+
+Don't cry because it is over,simle,because it happened.
+不要因为结束而哭泣，微笑吧，为你曾经拥有
+
+And forever has no end.
+永永远远，永无止境
